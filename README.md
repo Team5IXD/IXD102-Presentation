@@ -1,13 +1,13 @@
 Pioneers of Postmodern Graphic Design
 ---
 #####Team 5
-*   Amy
+*   Amy *Writing about David Carson*
 
-*   William
+*   William *Writing about Chip Kidd*
 
-*   Ryan
+*   Ryan *Writing about Storm guy*
 
-*   Nathan
+*   Nathan *Writing about Rosemary Thissi*
 
-####Due Date: 30th October
+####Due Date: 6th November
 
