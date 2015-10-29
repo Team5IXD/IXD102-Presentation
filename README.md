@@ -7,7 +7,7 @@ Pioneers of Postmodern Graphic Design
 
 *   Ryan *Writing about Storm guy*
 
-*   Nathan *Writing about Rosemary Thissi*
+*   Nathan *Writing about Rosemary Tissie*
 
 ####Due Date: 6th November
 
